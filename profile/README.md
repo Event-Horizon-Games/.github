@@ -1,0 +1,1 @@
+Just a bunch of dudes being guys. Really just me at the moment doing fun projects to keep me busy. Looking at getting a group of creative people together to get into game devleopment. Reach out to my twitter or email if ur interested :).
